@@ -3,6 +3,7 @@
 ![](https://64.media.tumblr.com/ee9cf9673e4a77fe5ea7bc19b3f4f5ff/6e6e369cfa40278b-2e/s1280x1920/96ec970d147ab5dbf3a962b60d33054645e35174.pnj)
 <center> hiii !! jst a tid bit of stuff i want u guys to know if u see this! </center>
 <center> I don't care what you ship, but when it comes to marvel ships, we **strictly** only do canon ships, unless said character does not have a confirmed partner. </center>
+
 - We don't do any Iron-Man ships. Unless it is Pepperony, respectfully iwc.
 - ^ this goes the same for Spider-Man! Our Spider-Man skin is based off Tom Holland's Spider-Man (But Gwen/Felicia/Mary Jane skins r still fine ^_^)
 - Sambucky INT PLEASEEEEE T-T
