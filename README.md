@@ -6,7 +6,7 @@
 
 - We don't do any Iron-Man ships. Unless it is Pepperony, respectfully iwc.
 - ^ this goes the same for Spider-Man! Our Spider-Man skin is based off Tom Holland's Spider-Man (But Gwen/Felicia/Mary Jane skins r still fine ^_^)
-- Sambucky INT PLEASEEEEE T-T
+- Irondad n Spiderson , Sambucky INT PLEASEEEEE T-T
 
 Besides ships, you are free to cuddle with me! I will not move away regardless of your skin, but if I'm sitting with friends, please ask me beforehand! I will panic lol
 Thank you for reading <3
