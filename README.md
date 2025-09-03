@@ -2,8 +2,7 @@
 
 ![](https://64.media.tumblr.com/ee9cf9673e4a77fe5ea7bc19b3f4f5ff/6e6e369cfa40278b-2e/s1280x1920/96ec970d147ab5dbf3a962b60d33054645e35174.pnj)
 <center> hiii !! jst a tid bit of stuff !! </center>
-
-<center> I suck at making convos / continuing them , especially if you're someone really freaking cool and out of my league :( just know that I love to talk !! </center>
+- I suck at making convos / continuing them , especially if you're someone really freaking cool and out of my league :( just know that I love to talk !!
 
 ![](https://64.media.tumblr.com/31f139b0ef416ea139bac60d3c5c6bde/da9fa6b147f4daeb-d3/s1280x1920/87fbb29d9e98e3d859497839556fd15f87c1961e.pnj)
 
