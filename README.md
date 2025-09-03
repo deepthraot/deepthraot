@@ -6,9 +6,8 @@
 
 ![](https://64.media.tumblr.com/31f139b0ef416ea139bac60d3c5c6bde/da9fa6b147f4daeb-d3/s1280x1920/87fbb29d9e98e3d859497839556fd15f87c1961e.pnj)
 
-- We don't do any Iron-Man ships. Unless it is Pepperony, respectfully iwc.
-- ^ this goes the same for Spider-Man! Our Spider-Man skin is based off Tom Holland's Spider-Man (But Gwen/Felicia/Mary Jane skins r still fine ^_^)
-- Irondad n Spiderson , Sambucky INT PLEASEEEEE T-T
+- Multishipper, but I might not ship smth u ship, jst don't enforce it onto me :( (but you can still talk about it!!!!!!)
+- Irondad n Spiderson , Sambucky , F4 , and Poolverine & Madpool int
 
 ![](https://64.media.tumblr.com/31f139b0ef416ea139bac60d3c5c6bde/da9fa6b147f4daeb-d3/s1280x1920/87fbb29d9e98e3d859497839556fd15f87c1961e.pnj)
 
