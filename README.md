@@ -10,7 +10,7 @@
 
 ![](https://64.media.tumblr.com/31f139b0ef416ea139bac60d3c5c6bde/da9fa6b147f4daeb-d3/s1280x1920/87fbb29d9e98e3d859497839556fd15f87c1961e.pnj)
 
-I LOVE to sit with people!! I don't like physical touch irl so sitting with people and cuddling with them is really helpful for me!!
+I LOVE to sit with people!! extreme touch comfort, please cuddle me i'm lonely /pf
 I ALSO and unfortunately suck at making convos / continuing them , especially if you're someone really freaking cool and out of my league :( just know that I love to talk !!
 Thank you for reading <3
 ![](https://64.media.tumblr.com/436fb396ce52b2f7046b176d2d45593b/6e6e369cfa40278b-5d/s1280x1920/307540b8b7715de091896115faf226915987c957.pnj)
