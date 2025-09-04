@@ -1,4 +1,4 @@
-i love everyone in this party and rui
+i love everyone in this party and rui (my ikea trio hasn't been seen for over 20D)
 ![](https://files.catbox.moe/0hm8ey.png)
 
 ![](https://files.catbox.moe/kj37mt.gif)
