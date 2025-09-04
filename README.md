@@ -1,3 +1,6 @@
+i love everyone in this party and rui
+![](https://files.catbox.moe/0hm8ey.png)
+
 ![](https://files.catbox.moe/kj37mt.gif)
 
 ![](https://64.media.tumblr.com/ee9cf9673e4a77fe5ea7bc19b3f4f5ff/6e6e369cfa40278b-2e/s1280x1920/96ec970d147ab5dbf3a962b60d33054645e35174.pnj)
